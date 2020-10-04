@@ -1,2 +1,2 @@
 # InfernoZXVs_Random_Stuff
-Just a random mod because why not
+Just a random mod created by an amateur because why not
